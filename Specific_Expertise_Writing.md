@@ -1,5 +1,7 @@
 ## What am I Knowledgable About that I can Preach On?
 
+I know a lot of specific information about a lot of different things, so I can't bring myself to choose just one topic. I give you 3 areas that I could talk about all day:
+
 ### #1
 
 Well, since I am a wildlife bio major, I can basically preach on facts and terms related to Wildlife Biology. I can answer questions about what a specific habitat for a specific species is, what the diets of most of the mammals in Missouri are, and why certain animals behave the way they do. Nature has been my life since I was 5 years old. That's most of my life. It is my world, and I have learned everything I could about it, including the past 3 years. Genetic diversity, niches, recruitment rates, handling time, Lotka-Volterra model, predator/prey relationships in a closed population, the freaking Isle Royale moose/wolf experiment (fascinating stuff), geography, the Red List, etc, etc. 
