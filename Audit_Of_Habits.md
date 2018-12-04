@@ -10,5 +10,4 @@
 
 ## One Strength
 
-- Mapping out, roughly, how I want the paper to go. Write now, go back and edit later. Usually letting myself freely write and going back to make changes ends in a decent paper that I can comfortably turn in. I also keep a good record of my resources. Losing resources would be my worst nightmare since most of them are scientific journals and finding a specific one again is hard and next to impossible. I bookmark them in my browser and download a PDF version if its available. 
-
+- Write now, go back and edit later. Usually letting myself to write freely so I don't get bogged down with a strict idea and pure data then going back to make changes by adding things or deleting things. The stress level is less and I don't get as frustrated. 
